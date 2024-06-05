@@ -1,0 +1,2 @@
+# Indian_Summer_School_on_Cellular_Automata_2024
+ 
